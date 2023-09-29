@@ -1,0 +1,1 @@
+[# Figma-Monday.com](https://www.figma.com/file/5vXHlc7F9LyTkRjRgMS9ht/Monica_Monday.com?type=design&node-id=1%3A2&mode=design&t=dQMIY4ASOMn3z6FZ-1)https://www.figma.com/file/5vXHlc7F9LyTkRjRgMS9ht/Monica_Monday.com?type=design&node-id=1%3A2&mode=design&t=dQMIY4ASOMn3z6FZ-1
